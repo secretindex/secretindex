@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @secretindex
 - 👀 I’m interested in Just an Experiment
 - 🌱 I’m currently learning Music Composition
-- ⚡ Fun fact: Eu já larguei a programação, mas eu já avancei tanto que quero ver se eu faço algumas outras coisas.
+- ⚡ Fun fact: Epociens.
